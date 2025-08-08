@@ -1,2 +1,2 @@
 S.G. Velasquez
-UG Student @ UCL
+UG BASc (Science & Engineering) Student @ UCL

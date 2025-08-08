@@ -1,2 +1,2 @@
-Shayna Gail Velasquez
+S.G. Velasquez
 UG Student @ UCL

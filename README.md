@@ -1,2 +1,2 @@
 Shayna Gail Velasquez
-UG Student @ KCL
+UG Student @ UCL

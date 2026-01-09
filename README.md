@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <strong>S.G. Velasquez</strong> · CS & Mathematics @ UCL
+  <strong>Shayna Gail Velasquez</strong> · CS & Mathematics @ UCL
 </p>
 
 ---
